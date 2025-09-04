@@ -1,1 +1,1 @@
-Integrantes: Gustavo Villa, Jose Hidalgo
+Integrantes: Gustavo Villa, Jose Hidalgo, Sebastian Gonzalez
